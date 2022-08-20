@@ -12,7 +12,7 @@ Creative Front-End Developer offering 2+ years of experience providing high-impa
 - 🌱 Ability to accept feedback.
 - 😊 Problem-solving ability
 - 💼 Job interests: Software Engineer, Front Engineer, or UI Engineer (Intern or Junior level).
-- 📫 You can [view my resume](#) and contact me by emailing mailtobolaji@gmail.com.
+- 📫 You can [view my resume](#) and contact me by emailing michaelemmanuelq@gmail.com.
 
 ---
 
